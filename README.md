@@ -1,1 +1,0 @@
-# fotos-slide-zipoff
